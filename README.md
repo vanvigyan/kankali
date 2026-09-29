@@ -1,1 +1,0 @@
-# vanvigyan.github.io
